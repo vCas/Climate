@@ -8,13 +8,13 @@
 
 Please see [here]( https://www.futuretimeline.net/forum/topic/17231-climate-change-scientific-paper-library/) for 30,000 scientific papers about this fu*ked up situation. But showing research to people doesn’t work so
 
-#Let’s get to it.
+# Let’s get to it.
 
 Here you have a 30 minutes talk about why everything must collapse. ["There's no infinite growth"]( https://www.youtube.com/watch?v=qPb_0JZ6-Rc).
 
 5 years ago there was a tv show called The Newsroom. It was mostly a serious tv show with some comedic tones about the world of media. There is a [famous 5 minutes clip](https://www.youtube.com/watch?v=Uc1vrO6iL0U) about climate collapse.
 
-#Global Warming:
+# Global Warming:
 
 The below is based on this collection of [sources](https://docs.google.com/document/d/13hjFQnyRHfQiSZ2fHD4jjvudaPOR99WwZHwdImylD_4/edit) and the doc [here]( https://threadreaderapp.com/thread/1162767410862202880.html)
 
@@ -52,7 +52,7 @@ And have you heard about bottom-trawling A quarter of the world’s seafood caug
 
 [The steep curve of population]( https://i.imgur.com/5fEjb2t.png). If our numbers grow by 228,000 on an average day, then in one week, we will have added about 1,589,000 extra persons to world population. And five days after that we will add another million and then another and another, and we are on track to continue this way repeatedly into the foreseeable future. Never before in human history have we asked our governments, infrastructure, social institutions, earth's environment, and the social fabric of our civilizations to respond to and accommodate such mammoth increase numbers in such compressed periods of time. [Source]( https://www.populationinstitute.org/programs/gpso/gpso/). To prepare for it Humanity must produce more food in the next four decades than we have in the last 8,000 [years]( https://richardvanhooijdonk.com/blog/en/humanity-must-produce-more-food-in-the-next-four-decades-than-we-have-in-the-last-8000-years-the-dutch-may-have-the-solutions/) But we are wasting so much food and losing so much water in irrigation that taking all this into account Society will collapse by 2040 due to catastrophic food shortages. The results show that based on plausible climate trends, and a total failure to change course, the global food supply system would face catastrophic losses, and an unprecedented epidemic of food riots. [Source]( https://www.independent.co.uk/environment/climate-change/society-will-collapse-by-2040-due-to-catastrophic-food-shortages-says-study-10336406.html?utm_source=reddit.com)
 
-##Migrations
+## Migrations
 
 [Tens, hundreds of millions of climate refugees. MIT source]( https://www.technologyreview.com/s/613342/get-ready-for-tens-of-millions-of-climate-refugees/). By 2050 there will be 1.5B migrants. Yes, it’s in [30 years]( https://www.vice.com/en_us/article/59n9qa/climate-change-will-create-15-billion-migrants-by-2050-and-we-have-no-idea-where-theyll-go?). And it will increase the [potential for conflicts and violence]( https://www.news.iastate.edu/news/2019/02/13/climateconflict). A study by the Pentagon confirms [there will wars caused by migrants]( https://www.bloomberg.com/news/articles/2019-01-23/pentagon-fears-confirmed-climate-change-leads-to-war-refugees). Just an example of top of my head. India could block the river Indus and kill hundreds of millions of Pakistani [source]( https://timesofindia.indiatimes.com/india/water-crisis-brews-between-india-and-pakistan-as-rivers-run-dry/articleshow/67703540.cms). Both countries have WMD.
 
@@ -60,7 +60,7 @@ Documentary about [the climate exodus](https://youtu.be/cl4Uv9_7KJE)
 
 There will be a rise of fascism and concentration camps. Trump already tried this with the camps south and China is doing terrible things to Uighurs [my comment about the crimes against the Uighurs](https://www.reddit.com/r/worldnews/comments/ee5b95/hong_kong_protesters_rally_against_chinas_uighur/fbrdr4g/). We will see a rise of this over the next 30 years.
 
-##Famines
+## Famines
 
 We can already see the effects of extreme weather on food shortages. [45M Southern African are facing starvation](https://beta.theglobeandmail.com/world/article-extreme-weather-leaves-45-million-in-southern-africa-facing-severe/). Climate change looks [like starvation](https://www.thenation.com/article/climate-change-media-humanitarian-crises/)
 
@@ -90,7 +90,7 @@ Report from the WHO [World at risk](https://apps.who.int/gpmb/assets/annual_repo
 
 [Right now, air pollution in India or China is so high it goes off the chart. Without an airmask you'll get ill](https://aqicn.org/rankings/)
 
-##Pollution
+## Pollution
 
 The scale of Pollution is terrifying and only growing.
 
@@ -140,9 +140,9 @@ Oceans are absorbing a large portion of the CO2 emitted into the atmosphere—in
 
 [The Next Recession Will Destroy Millennials]( https://www.theatlantic.com/ideas/archive/2019/08/millennials-are-screwed-recession/596728/) Millennials are already in debt and without savings. After the next downturn, they’ll be in even bigger trouble. [How CEOs got so rich – buybacks]( https://youtu.be/ylLTMYt24lA). Student debt is [massive]( https://youtu.be/NXHwelwmQPA). Minimum wage didn’t [move for the last 40 years]( https://youtu.be/_M3vTvm2cfM). The productivity-pay gap. [The gap between productivity and a typical worker’s compensation has increased dramatically since 1979]( https://www.epi.org/productivity-pay-gap/) If you want to read about wealth inequalities please [see here]( https://www.reddit.com/r/Economics/comments/dqll76/silicon_valley_billionaires_keep_getting_richer/f6817tn/)
 
-#Conclusion
+# Conclusion
 
-##The super-rich
+## The super-rich
 
 The rich know that it is too late, and they will be the only one to survive the global warming [article]( https://www.independent.co.uk/news/world/middle-east/climate-change-apartheid-poor-iraq-effects-heatwave-a9049206.html). They [are building bunkers and buying NZ passports to fly there when SHTF happens]( https://www.youtube.com/watch?v=wUJtxn1V7N4) and that’s why they are [getting richer and richer exponentially]( https://www.marketwatch.com/story/heres-how-share-buybacks-get-used-to-transfer-billions-of-dollars-to-senior-management-under-the-guise-of-returning-cash-to-shareholders-2019-10-30). For example Canada, Norway and Brasil will flood the world with oil just to profit at the maximum [Article from NYT from today "Flood of Oil Is Coming, Complicating Efforts to Fight Global Warming"](https://www.nytimes.com/2019/11/03/business/energy-environment/oil-supply.html). And if anything happens they will just buy Visas and [passports for 1M+ and bug out](https://www.theguardian.com/uk-news/2019/sep/27/number-of-foreigners-buying-uk-golden-visa-rises) while migrants are put into concentration camps. Moreover [The wealthy are plotting to leave us behind](https://onezero.medium.com/survival-of-the-richest-9ef6cddd0cc1)
 
@@ -154,7 +154,7 @@ The rich are against [extinction rebellion movement](https://www.independent.co.
 
 [They](https://www.cbc.ca/radio/asithappens/as-it-happens-tuesday-edition-1.5399491/tech-giants-sued-over-appalling-deaths-of-children-who-mine-their-cobalt-1.5399492) [don’t](https://www.insurancejournal.com/news/national/2018/10/24/505490.htm) [care](https://africatimes.com/2019/11/20/report-madagascars-mica-mines-rely-on-child-labor/)
 
-##Politicians
+## Politicians
 
 I don’t want to talk much about politicians but there is a trend around the globe to have skeptics deny climate change from Australia [2019 - Whole Australia is burning](https://www.commondreams.org/news/2019/12/21/everything-burning-australian-inferno-continues-choking-access-cities-across-country) but its PM only tweets about brave [firefighters](https://i.redd.it/0fqtd0li4wz31.png) to [Trump’s specialists](https://www.theguardian.com/environment/2015/dec/08/greenpeace-exposes-sceptics-cast-doubt-climate-science) “Carbon dioxide is a actually a benefit to the world and so were the Jews”[Source](https://youtu.be/g6_gWPUiKAE?t=806). Bolsonaro is also a good example. [Bolsonaro’s response to fires in the Amazon rainforest --in recent months he denied they existed and then blamed them on the media ](https://www.bloomberg.com/news/articles/2019-12-12/from-trump-to-bolsonaro-climate-skeptics-stir-green-activism). Here’s a list of the main US [misinformers](https://skepticalscience.com/misinformers.php). This year head of public lands wants to [sell all the parks](https://thehill.com/policy/energy-environment/455340-new-head-overseeing-federal-public-lands-once-advocated-to-sell)
 
@@ -176,7 +176,7 @@ Same with a meat tax. We can impose a tax on meat in the developed countries but
 
 The power grid is dying (at least in the US). The US military could collapse [within 20 years because of a fragile power gird](https://www.vice.com/en_us/article/mbmkz8/us-military-could-collapse-within-20-years-due-to-climate-change-report-commissioned-by-pentagon-says). Blackouts due to extreme weather (hurricanes, floods, wildfires) are on the rise, in part due to climate change, which is only going to get worse. Clean energy technologies threaten to overwhelm the grid - the issue [of top-down and DERs](https://www.vox.com/energy-and-environment/2018/11/30/17868620/renewable-energy-power-grid-architecture). And ¼ of all US bridges could collapse by [2040](https://www.newscientist.com/article/2221040-climate-change-may-see-one-in-four-us-steel-bridges-collapse-by-2040/). There were some 15,500 high-hazard dams in the US in 2016. For the full [report](https://www.infrastructurereportcard.org/)
 
-##Why tree-loss prevention is more important than planting them.
+## Why tree-loss prevention is more important than planting them.
 
 [There’s too much CO2 in the atmosphere that planting trees can no longer save us]( https://www.businessinsider.com/so-much-co2-planting-trees-cant-save-us-2017-5?IR=T). However Scientists estimate that we need to plant 1 trillion trees to mitigate the GW. WITHOUT LOSING ONE SINGLE TREE because [a burning tree is releasing all the CO2 back](https://www.newscientist.com/article/2208610-unprecedented-arctic-megafires-are-releasing-a-huge-amount-of-co2/). The amazon is losing 3 football field’s PER MINUTE thanks to [fire]( https://www.businessinsider.com/amazon-losing-3-football-fields-worth-of-rainforest-per-minute-2019-8?IR=T). If you prefer an interactive [map](https://fires.globalforestwatch.org/map/). At the moment we are losing 13-15 million hectares per year in South America and Africa and south East Asia because it is converted from a forest to agriculture land. [Source]( http://www.fao.org/news/story/en/item/40893/icode/).
 
@@ -186,7 +186,7 @@ So, if we assume that 1M trees’ planted is one step that you make, then 20 met
 
 An international team of researchers has looked at the material demands and pollution that would result from a push to get the globe to 40 percent renewables by the middle of the century. The analysis finds that despite the increased materials and energy demands, a push like this would result in a dramatic reduction in pollution. And for the most part, the material demands could be met, with the possible exception of copper.  40% Green Energy requires 200% more [copper]( https://www.climatecentral.org/news/renewable-energy-needs-huge-mineral-supply-16682) 100% green energy requires 500% more copper. We move some 3 billion tons of earth per year to get 15 millions tons of copper. We cannot recycle it into existence. Substituting aluminum for copper takes 5X the energy and is less safe. [And there is no substitutes for the metals]( https://www.vice.com/en_us/article/d73zvm/there-are-no-substitutes-for-the-metals-in-your-smartphone)
 
-#Why nobody talks about collapse?
+# Why nobody talks about collapse?
 
 Because a world without hope is a burning world. Imagine 7B people realizing they don’t have 50-70 years of life but 20 or 30. [It’s pure chaos - Story of a redditor from Chile](https://www.reddit.com/r/StockMarket/comments/dktx0p/black_swan/). Additionally, the wealthy of this world are trying promoting such work ethics that you don't have the time to read, watch or study the above. This endless cycle of working-buying stuff-sleeping is damaging our society. We are becoming more and more ostracized from each other by using technology like FB or Tinder. Moreover, some countries or politicians are trying to destabilize the world as we know, to create confusion and conflicts between us. Divide and conquer. Why do you think Russia stands [behind Brexit](https://www.npr.org/2019/01/19/686830510/senate-finds-russian-bots-bucks-helped-push-brexit-vote-through), the [Black/Blue LM movement](https://slate.com/technology/2018/05/russian-trolls-are-obsessed-with-black-lives-matter.html?via=gdpr-consent) and the [rise of fascism in Europe](https://www.theatlantic.com/ideas/archive/2018/08/russia-is-co-opting-angry-young-men/568741/)? If you want to read more about Russia's violations of law [here is my 1.6k upvoted comment](https://www.reddit.com/r/worldnews/comments/cbja9x/some_of_putins_top_cops_are_mobsters_even_kgb/etgcv3l/)
 
